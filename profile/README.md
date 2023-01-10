@@ -11,4 +11,4 @@
 
 🧙 Bao Trieu Thai (Ethan) 206
 
-👩🏼‍🎓 Sonia Nain 364
+👩‍💻 Sonia Nain 364
